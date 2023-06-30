@@ -1,6 +1,6 @@
 Boas vindas ao meu perfil :) 💙
 
-Me chamo Mariana Martins
+Eu me chamo Mariana Martins
 
 Atualmente estou no primeiro ano do ensino médio 
 
